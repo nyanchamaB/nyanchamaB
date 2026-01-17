@@ -39,7 +39,7 @@ I enjoy working independently, learning deeply, and building practical solutions
 ---
 
 ## 📫 How to Reach Me
-- Email: example@gmail.com  
+- Email: Just Linkedin
 - LinkedIn: https://www.linkedin.com/in/brendah-nyanchama-8823b4251/
 
 ---
@@ -56,7 +56,7 @@ All of my projects are available at:
 ---
 
 ## ⚡ Personal Note
-Solitude helps me focus, learn deeply, and grow.
+Solitude helps
 
 ---
 
